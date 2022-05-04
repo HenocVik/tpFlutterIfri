@@ -5,6 +5,6 @@ Membre du groupe
 - HOUNDO Beaudelaire IM3
 - VIAKIN Hénoc IM3
 -ZOUNMENOU Mendez IM3
-
+- AMINTCHI Oscars IM3
 
 
